@@ -1,1 +1,19 @@
 # clone_test
+DSF
+
+SADF
+SAFER
+R
+TRT
+D
+G
+DFG
+
+EY
+Y
+RG
+FD
+GRT
+Y
+RY
+ERTH
